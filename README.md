@@ -179,11 +179,11 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ![Mascara Las Promesseras 2021 Graffiti Mareco](https://user-images.githubusercontent.com/76437195/107038983-b3d70a00-6793-11eb-86e2-527d593de6fe.jpg)
 
+# Logomarcas Celso Arakaki
+
 ![Las Promesseras Foto Perfil Facebook](https://user-images.githubusercontent.com/76437195/105171241-62245380-5af4-11eb-9bd0-498b3fa738b2.jpg)
 
 ![Las Promesseras Foto Perfil Facebook Fundo Escuro](https://user-images.githubusercontent.com/76437195/105113475-66705280-5a9b-11eb-997f-c26647b6814c.jpg) 
-
-![Mascara Las Promesseras 2021 03 SmartPhone](https://user-images.githubusercontent.com/76437195/105422408-14097000-5c1a-11eb-9fc1-6dbfb8a57667.jpg) 
 
 
 ## [Divulgacão Tape Nhande Facebook](https://www.facebook.com/tapenandenee)
