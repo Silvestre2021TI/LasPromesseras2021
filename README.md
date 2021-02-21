@@ -429,9 +429,73 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 [Las Promesseras Story 08]
 
-## Teaser 19 fev
+## Arte e MKTdigital
+## Orlando Silvestre
+
+![Camiseta Las Promesseras 4 SmartPhones WEB](https://user-images.githubusercontent.com/76437195/107979262-a809f580-6f94-11eb-9ab5-ff3dc6761321.jpg) 
+
+
+## Souvenirs 
+
+![Las Promesseras 2021 III Sponsor Gold Silver Bronze Platinum](https://user-images.githubusercontent.com/76437195/108630167-d75baf00-7439-11eb-8e4c-ae032da31099.jpg)
+
+![Las Promesseras 2021 III Apoio Cultural Tembiu He](https://user-images.githubusercontent.com/76437195/108630151-c4e17580-7439-11eb-816e-60dc326eaf35.jpg)
+
+![Las Promesseras 2021 III Produto Mascara Orlandinho Myriane](https://user-images.githubusercontent.com/76437195/108630155-cad75680-7439-11eb-96c3-096019e7d4b3.jpg)
+
+![Las Promesseras 2021 III Produto Molduras](https://user-images.githubusercontent.com/76437195/108630160-d034a100-7439-11eb-9f65-fdedf58620e6.jpg)
+
+![Las Promesseras 2021 III Sovenir Regalo Oficial](https://user-images.githubusercontent.com/76437195/108630185-e6426180-7439-11eb-80fa-5c61c629cc12.jpg)
+
+
+##  Futura
+
+![Las Promesseras 2021 III Sovenir Moldura Marcus Vinicius](https://user-images.githubusercontent.com/76437195/108630180-e0e51700-7439-11eb-9e10-9e0d29154a27.jpg)
+
+![Las Promesseras Futura 001 21 fev 2021](https://user-images.githubusercontent.com/76437195/108630190-f22e2380-7439-11eb-81c4-f5ab464a8c89.jpg) 
+
+![Las Promesseras Futura 002 21 fev 2021](https://user-images.githubusercontent.com/76437195/108630196-fc502200-7439-11eb-9dc3-85fbe39bfeb4.jpg)
+
+
+## Trilhos Digitais
+
+![Trilhos Digitais Logo WEB](https://user-images.githubusercontent.com/76437195/108630206-0a9e3e00-743a-11eb-9d5e-184ecabee4a1.jpg)
+
+
+## Las Promesseras Mosaico 5 Capas 
+
+![Las Promesseras 2021 III Banners de Capa do Perfil com Mara Silvestre](https://user-images.githubusercontent.com/76437195/108630228-21449500-743a-11eb-873f-864d7dd0d941.jpg)
+ 
+ 
+## Teaser 19 Fev 2021
+
 
 ## Las Promesseras
 ## Ficha Técnica
 
-![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg)
+![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg)  
+
+![Mascara COVID19 Las Promesseras 2021 III](https://user-images.githubusercontent.com/76437195/108630763-d710e300-743c-11eb-86b9-12aec0281652.jpg) 
+
+
+## Souvenirs Oficiais Las Promesseras
+
+![LasPromesseras Souvenir Camisetas](https://user-images.githubusercontent.com/76437195/108636789-f835fb80-745d-11eb-8194-fa314f375257.jpg)
+
+![LasPromesseras Souvenir Mascaras](https://user-images.githubusercontent.com/76437195/108636794-ff5d0980-745d-11eb-8a14-59be5d378456.jpg)
+
+![Las Promesseras Mosaico I](https://user-images.githubusercontent.com/76437195/108636859-5531b180-745e-11eb-858b-13983be69a94.jpg)
+
+![Las Promesseras Mosaico II](https://user-images.githubusercontent.com/76437195/108636882-5c58bf80-745e-11eb-90d5-60cb3536542d.jpg)
+
+![Las Promesseras Mosaico III](https://user-images.githubusercontent.com/76437195/108636887-637fcd80-745e-11eb-8d7b-337b00635848.jpg)
+
+![Las Promesseras Mosaico IV](https://user-images.githubusercontent.com/76437195/108636894-71cde980-745e-11eb-8098-f02ebc8973d5.jpg)
+
+![Las Promesseras Mosaico V](https://user-images.githubusercontent.com/76437195/108636899-7a262480-745e-11eb-909a-dd3cccca4be5.jpg)
+
+![Las Promesseras 2021 III 09 Mosaico Pasta I](https://user-images.githubusercontent.com/76437195/108636906-8316f600-745e-11eb-8a21-a25dce59a955.jpg)
+
+![Las Promesseras 2021 III 10 Mosaico Pasta II](https://user-images.githubusercontent.com/76437195/108636912-8ca05e00-745e-11eb-826c-3176205c9f82.jpg)
+
+![Las Promesseras 2021 III 07 Edson Moraes](https://user-images.githubusercontent.com/76437195/108636919-a04bc480-745e-11eb-85b0-6e22d19094c9.jpg)
