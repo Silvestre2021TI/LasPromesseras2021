@@ -401,13 +401,19 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
 
 ![Las Promesseras Fernando Soares 06fev2021 II](https://user-images.githubusercontent.com/76437195/107738199-98608780-6cdc-11eb-8db0-86d87092492b.jpg)
 
-
+## CorreioB Correio do Estado 22 02 2021 
 ## PROMESSAS DA FRONTEIRA 
 #CorreioB Correio Do Estado 
 Ano 68 Edição n. 21.418 22fev2021
 #LasPromesseras no #CorreioDoEstado
 
 ![Las Promesseras 2021 02 22 Correio do Estado Caderno B Promessas na Fronteira](https://user-images.githubusercontent.com/76437195/108759983-73adb080-7523-11eb-8c5d-8e603569c34d.jpg) 
+
+## Campo Grande NEWS
+
+
+## O Estado onLine
+
 
 
 ## Page Poeta Manoel de Barros 
