@@ -512,4 +512,8 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 ![Las Promesseras 2021 III 10 Mosaico Pasta II](https://user-images.githubusercontent.com/76437195/108636912-8ca05e00-745e-11eb-826c-3176205c9f82.jpg)
 
-![Las Promesseras 2021 III 07 Edson Moraes](https://user-images.githubusercontent.com/76437195/108636919-a04bc480-745e-11eb-85b0-6e22d19094c9.jpg)
+![Las Promesseras 2021 III 07 Edson Moraes](https://user-images.githubusercontent.com/76437195/108636919-a04bc480-745e-11eb-85b0-6e22d19094c9.jpg) 
+
+## LadoB @cgrnews
+
+... 
