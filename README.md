@@ -516,4 +516,4 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 ## LadoB @cgrnews
 
-... 
+##C
