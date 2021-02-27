@@ -531,3 +531,7 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 ![A 6 Prefeitura Mun Porto Murtinho Las Promesseras](https://user-images.githubusercontent.com/79057539/109359054-3024b080-785b-11eb-92ba-62d16c1f9cf2.jpg)
 
 ![A 7 Prefeitura Mun Porto Murtinho Las Promesseras](https://user-images.githubusercontent.com/79057539/109359083-387ceb80-785b-11eb-905e-82218d1854a2.jpg)
+
+![A 8 Prefeitura Mun Porto Murtinho Las Promesseras](https://user-images.githubusercontent.com/79057539/109390195-83901080-78e6-11eb-99a9-df0e414222bd.jpg) 
+
+![A 9 Prefeitura Mun Porto Murtinho Las Promesseras](https://user-images.githubusercontent.com/79057539/109390199-8e4aa580-78e6-11eb-9410-b26d8c7e09c5.jpg)
