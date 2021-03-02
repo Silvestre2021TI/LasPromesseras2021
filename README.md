@@ -663,4 +663,3 @@ Las Promesseras en su Dia, afirma que #LaMujerParaguaya es decidida, valiente, t
 
 ![LasPromesseras Page Midia 10](https://user-images.githubusercontent.com/79057539/109562102-5d1fd000-7ab4-11eb-9d52-77c4cbb7f0db.jpg)
 
-
